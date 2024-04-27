@@ -1,0 +1,5 @@
+![green1](https://github.com/backminjoo/plant_gallery/assets/72775295/881639fc-2179-48a6-b9bd-3365ac05a02c)
+![green2](https://github.com/backminjoo/plant_gallery/assets/72775295/ece2df81-9724-48bb-b97c-f6d81dd93c70)
+![green3](https://github.com/backminjoo/plant_gallery/assets/72775295/89db294a-501f-4d02-ab1d-d1e60fcd7e3b)
+![green](https://github.com/backminjoo/plant_gallery/assets/72775295/0df61dc7-37cd-4920-9278-30ba81c0785a)
+![green4](https://github.com/backminjoo/plant_gallery/assets/72775295/3295c1b0-b53d-409f-9e44-42f7e4434245)
